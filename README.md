@@ -14,9 +14,9 @@
 
 👤 **Gabriel Andrade**
 
-- GitHub: [@gandradep](https://github.com/gandradep)
-- Twitter: [@leribagandrade](https://twitter.com/leribagandrade)
-- LinkedIn: [Gabriel-Andrade](https://www.linkedin.com/in/gabriel-andrade-silla-turca/)
+- GitHub: [@shuhad786](https://github.com/shuhad786)
+- 
+- LinkedIn: [Shuhad-Loofer](www.linkedin.com/in/shuhad-loofer)
 
 
 ## Show your support
